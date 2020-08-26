@@ -1,1 +1,1 @@
-[![Watch the video](https://drive.google.com/file/d/1qyFFX6XDRVGFd_ujhyoCWaz7qWUMXORx/view?usp=sharing/maxresdefault.jpg)](https://drive.google.com/file/d/1qyFFX6XDRVGFd_ujhyoCWaz7qWUMXORx/view?usp=sharing))
+[![Watch the video](https://drive.google.com/file/d/1qyFFX6XDRVGFd_ujhyoCWaz7qWUMXORx/view?usp=sharing/maxresdefault.jpg)](https://drive.google.com/file/d/1qyFFX6XDRVGFd_ujhyoCWaz7qWUMXORx/view?usp=sharing)
